@@ -2,6 +2,11 @@
 * 궁금하거나 이야기 하고 싶을 때는 [여기!](https://padlet.com/dreamkii816/38)
 
 ---
+####2016년도 6월 모의평가 해설 [1~11](https://www.youtube.com/watch?v=AylGaRAoKNA)
+---
+
+
+---
 ####기출문제 풀이     
 ---
 
@@ -40,6 +45,4 @@
 ....2.유전적 평형과 유전자풀의 변화  
 ....3.종의 분화  
 
----
-####2016년도 6월 모의평가 해설 [1~11](https://www.youtube.com/watch?v=AylGaRAoKNA)
----
+
