@@ -2,7 +2,7 @@
 * 궁금하거나 이야기 하고 싶을 때는 [여기!](https://padlet.com/dreamkii816/38)
 
 ---
-####2016년도 6월 모의평가 해설 [1~11](https://www.youtube.com/watch?v=AylGaRAoKNA)
+####2016년도 6월 모의평가 해설 [1~11](https://www.youtube.com/watch?v=AylGaRAoKNA)/[12~20](https://www.youtube.com/watch?v=uNqHXFNbae4&feature=youtu.be)
 ---
 
 
